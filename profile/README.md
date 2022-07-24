@@ -1,5 +1,5 @@
 ## Hi there 👋
-
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/L4L27YGJ0)
 <!--
 
 **Here are some ideas to get you started:**
